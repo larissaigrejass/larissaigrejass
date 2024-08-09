@@ -1,4 +1,4 @@
-### Bem vindo(a) ao me perfil!🫶
+### Bem vindo(a) ao me perfil!❤️
 Meu nome é Larissa Igrejas de Oliveira Santos.
 Tenho 15 anos. 
 Estou me formando no ensino médio e técnico de desenvolvimento de sistemas.
